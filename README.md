@@ -5,7 +5,8 @@
 
 
 
-![Screenshot 2023-09-04 190037](https://github.com/bennettnottingham/Resume/assets/65934399/f9e3706e-0b18-4bce-b530-2e55549ebedd)
+![Screenshot 2023-09-04 190037](![image](https://github.com/user-attachments/assets/e45655dc-14f3-42c5-b57a-428d8e03ab7b)
+)
 
 
 
